@@ -1,0 +1,2 @@
+# premium-cochineal-lake-001-cochineal-lake-pigment-alum
+Tired of scattered notes on cochineal lake ratios, alum mordant calculations, and pigment batch records? The Cochineal Lake Pigment &amp; Alum Mordant Hub consolidates everything natural dyers and pigment makers need into one beautifully organized Notion workspace.  Stop juggling multiple documents, spreadsheets, and handwritten recipes. This all-in-on
